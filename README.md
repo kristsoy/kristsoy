@@ -1,2 +1,1 @@
-
-![1027f80aeabcbb74a2e698be71829e9e](https://github.com/kristsoy/kristsoy/assets/159282836/e96df0d2-b8de-4a6a-9c77-591cd5067b91)
+![6kp](https://github.com/kristsoy/kristsoy/assets/159282836/7a0c25bf-1561-4c00-8990-b7d3966bd1ae)
