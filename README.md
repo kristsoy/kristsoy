@@ -1,1 +1,2 @@
-![98815f30af15d94ab3dd1af44ef8e6a9](https://github.com/kristsoy/kristsoy/assets/159282836/08a1eb62-0769-4a73-a971-a4ceca996eab)
+
+![1027f80aeabcbb74a2e698be71829e9e](https://github.com/kristsoy/kristsoy/assets/159282836/e96df0d2-b8de-4a6a-9c77-591cd5067b91)
