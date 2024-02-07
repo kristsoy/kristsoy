@@ -1,1 +1,1 @@
-![6kp](https://github.com/kristsoy/kristsoy/assets/159282836/7a0c25bf-1561-4c00-8990-b7d3966bd1ae) width="280" height="280" frameBorder="0"
+<p align="center"><a href="https://github.com/kristsoy" target="_blank"><img width="50%" alt="Hello!" src="https://i.pinimg.com/originals/5f/93/49/5f934966a1d20bae1909c9ef2278bd4c.gif" /></a></p>
